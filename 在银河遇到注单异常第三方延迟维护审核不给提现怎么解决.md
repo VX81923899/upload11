@@ -1,5 +1,4 @@
 出黑技术联系  微信 【81923899】 QQ： 3803823722
-
 <img width="927" height="631" alt="default" src="https://github.com/user-attachments/assets/ca60c35f-aa2e-47e9-ad77-5d8c3583b40e" />
 
 ① 被黑不要和平台理论。（如果您盈利，款额巨大，请一定要记住！你一直的纠缠只会导致被封号，而且会找各种理由拖延时间，找理由推脱)
